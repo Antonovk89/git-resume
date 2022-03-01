@@ -1,7 +1,9 @@
 #Antonov Konstantin#
 
-15.05.1989
+15.05.1989 
+
 antonovk89@gmail.com
+
 +7 963 765 02 13
 
 **Key Skills**
